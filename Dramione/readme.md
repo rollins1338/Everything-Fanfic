@@ -11,5 +11,6 @@
 - [*`His Little Bird series`* ](https://archiveofourown.org/series/61515)
 - [*`Crumple`*](https://archiveofourown.org/works/49030339/chapters/123697021)
 - [*`Crumple: Aftermath`*](https://archiveofourown.org/works/49768126/chapters/125624026)
-- [*`A Song of Chaos`*](https://archiveofourown.org/works/58173772/chapters/148122292) 
+- [*`A Song of Chaos`*](https://archiveofourown.org/works/58173772/chapters/148122292)
+- [*`Not With a Bang`*](https://archiveofourown.org/works/54056641)
 
