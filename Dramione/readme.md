@@ -6,8 +6,8 @@
 
 # Add after verify 
 
-- [*`L I M E R E N C E`*](https://archiveofourown.org/works/65098594/chapters/167412250) [Dramione]
-- [*`ETERNALLY YOURS`*](https://archiveofourown.org/works/65535550/chapters/168702979) [Dramione, Sequel of L I M E R E N C E ]
+- [*`L I M E R E N C E`*](https://archiveofourown.org/works/65098594/chapters/167412250) 
+- [*`ETERNALLY YOURS`*](https://archiveofourown.org/works/65535550/chapters/168702979) [*Sequel of L I M E R E N C E*]
 - [*`His Little Bird series`* ](https://archiveofourown.org/series/61515)
 - [*`Crumple`*](https://archiveofourown.org/works/49030339/chapters/123697021)
 - [*`Crumple: Aftermath`*](https://archiveofourown.org/works/49768126/chapters/125624026)
