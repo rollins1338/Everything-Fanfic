@@ -2,7 +2,7 @@
 
 - [**Inheriting Darkness**](https://archiveofourown.org/works/68204066?view_full_work=true)
 - [**Where the wild things go**](https://archiveofourown.org/works/63127246/chapters/161662813)
-- [**A Mudblood's Punishment by Stein048**](https://archiveofourown.org/works/40145619/chapters/100543950)
+- [**A Mudblood's Punishment**](https://archiveofourown.org/works/40145619/chapters/100543950)
 
 # Add after verify 
 
