@@ -1,4 +1,8 @@
-``watch maxton hall``
+# 🍷 Priority List
+- [ ] Silver Bullets & Gold Ribbons
+- [ ] Secrets And Masks
+- [ ] Chained Maiden
+- [ ] Broken
 
 # 🍁 WIPs
 
