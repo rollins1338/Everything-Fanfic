@@ -3,12 +3,14 @@
 - [ ] Secrets And Masks
 - [ ] Chained Maiden
 - [ ] Broken
+- [ ] House Pet
 
 # 🍁 WIPs
 
 - [**Inheriting Darkness**](https://archiveofourown.org/works/68204066?view_full_work=true)
 - [**Where the wild things go**](https://archiveofourown.org/works/63127246/chapters/161662813)
 - [**A Mudblood's Punishment**](https://archiveofourown.org/works/40145619/chapters/100543950)
+- [**House Pet**]https://archive.transformativeworks.org/works/38484064/chapters/96182521
 
 # Add after verify 
 
