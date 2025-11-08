@@ -1,9 +1,11 @@
 # 🍷 Priority List
 - [ ] Silver Bullets & Gold Ribbons
-- [ ] Secrets And Masks
+- [ ] Secrets and Masks
 - [ ] Chained Maiden
 - [ ] Broken
 - [ ] House Pet
+- [ ] Snow Storm
+- [ ] Columba and Aquila
 
 # 🍁 WIPs
 
