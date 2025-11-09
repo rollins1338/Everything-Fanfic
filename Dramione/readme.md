@@ -6,6 +6,7 @@
 - [ ] House Pet
 - [ ] Snow Storm
 - [ ] Columba and Aquila
+- [ ] Don't Fear the Reaper
 
 # 🍁 WIPs
 
