@@ -1,5 +1,5 @@
 # 🍷 Priority List
-- [ ] Silver Bullets & Gold Ribbons
+- [x]] Silver Bullets, Gold Ribbons
 - [ ] Secrets and Masks
 - [ ] Chained Maiden
 - [ ] Broken
