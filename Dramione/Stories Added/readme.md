@@ -1,1 +1,1 @@
-- [Silver Bullets, Gold Ribbons](https://github.com/rollins1338/SLVRBGLDR/tree/main)
+- [*Silver Bullets, Gold Ribbons*](https://github.com/rollins1338/SLVRBGLDR/tree/main)
