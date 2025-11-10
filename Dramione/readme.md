@@ -7,7 +7,7 @@
 - [ ] Snow Storm
 - [ ] Columba and Aquila
 - [ ] Don't Fear the Reaper
-- [ ] Late Night Wonderings 
+- [ ] Late Night Wandering 
 
 # 🍁 WIPs
 
