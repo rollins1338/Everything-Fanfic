@@ -1,5 +1,5 @@
 # 🍷 Priority List
-- [x] Silver Bullets, Gold Ribbons
+- [x] [Silver Bullets, Gold Ribbons](https://github.com/rollins1338/SLVRBGLDR)
 - [ ] Secrets and Masks
 - [ ] Chained Maiden
 - [ ] Broken
@@ -10,7 +10,7 @@
 - [ ] Don't Fear the Reaper
 - [ ] Late Night Wandering
 - [ ] Draconian Heart
-- [x] A Marriage of inconvenience 
+- [x] [A Marriage of inconvenience](https://github.com/rollins1338/amarriageofincov)
 
 # 🍁 WIPs
 
