@@ -10,6 +10,7 @@
 - [ ] Don't Fear the Reaper
 - [ ] Late Night Wandering
 - [ ] Draconian Heart
+- [ ] Truth or Dare
 - [x] [A Marriage of inconvenience](https://github.com/rollins1338/amarriageofincov)
 
 # 🍁 WIPs
