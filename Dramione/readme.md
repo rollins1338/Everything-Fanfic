@@ -1,5 +1,5 @@
 # 🍷 Priority List
-- [x] [Silver Bullets & Gold Ribbons](https://github.com/rollins1338/SLVRBGLDR) a fucking masterpiece 10/10
+- [x] [Silver Bullets & Gold Ribbons](https://github.com/rollins1338/SLVRBGLDR) **a fucking masterpiece 10/10**
 - [ ] Secrets and Masks
 - [ ] Chained Maiden
 - [ ] Broken
