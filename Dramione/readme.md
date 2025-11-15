@@ -32,6 +32,7 @@
 - [*`Crumple: Aftermath`*](https://archiveofourown.org/works/49768126/chapters/125624026)
 - [*`A Song of Chaos`*](https://archiveofourown.org/works/58173772/chapters/148122292)
 - [*`Not With a Bang`*](https://archiveofourown.org/works/54056641)
+- [*`Contractual Obligations`*](https://archiveofourown.org/works/53004529/chapters/134092618)
 
 
 ---
