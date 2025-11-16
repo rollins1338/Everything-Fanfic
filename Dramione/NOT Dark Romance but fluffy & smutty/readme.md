@@ -6,6 +6,7 @@ ik im going agaisnt my usual preference but i cant help it XD
 
 # wips
 - [You Do It For Me](https://archiveofourown.org/works/46814671/chapters/117917215) [Added till ch53]
+- [Wolves fear to prey](https://archiveofourown.org/works/60517207/chapters/154494646?view_adult=true) 3/4
 
 # podfic
 - [Meet Me in Dreamland](https://soundcloud.com/thedramionearchives/sets/podfic-meet-me-in-dreamland-by)
