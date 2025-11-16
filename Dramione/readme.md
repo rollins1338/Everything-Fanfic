@@ -22,14 +22,8 @@
 - [**House Pet**](https://archive.transformativeworks.org/works/38484064/chapters/96182521)
 - [**Crawl to Me**🌟](https://archiveofourown.org/works/73004846/chapters/190215981)
 - [**Year of the Lioness**🌟](https://archiveofourown.org/works/56810173/chapters/144434263)
+- [**A Song of Chaos**🌟](https://archiveofourown.org/works/58173772/chapters/148122292)
   
-# Add after verify 
-
-- [*`His Little Bird series`* ](https://archiveofourown.org/series/61515)
-- [*`A Song of Chaos`*](https://archiveofourown.org/works/58173772/chapters/148122292)
-- [*`Not With a Bang`*](https://archiveofourown.org/works/54056641)
-- [*`Contractual Obligations`*](https://archiveofourown.org/works/53004529/chapters/134092618)
-
 
 ---
 # 🌼 Dramione Podfic Archive
