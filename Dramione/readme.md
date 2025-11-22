@@ -6,13 +6,13 @@
 - [ ] Dawn
 - [ ] House Pet
 - [ ] Snow Storm
-- [ ] Columba and Aquila
-- [ ] Don't Fear the Reaper
-- [ ] Late Night Wandering
-- [ ] Draconian Heart
-- [ ] Truth or Dare
+- [ ] Columba and Aquila 🌟
+- [ ] Don't Fear the Reaper 🌟
+- [ ] Late Night Wandering 🌟
+- [ ] Draconian Heart 🌟
+- [ ] Truth or Dare 🌟
 - [x] [A Marriage of inconvenience](https://github.com/rollins1338/amarriageofincov)
-- [ ] Draco Malfoy and the Mortifying Ordeal of Being in Love [NOT DR but a good read?]
+- [ ] These Bars Between Us 🌟
 
 # 🍁 WIPs
 
