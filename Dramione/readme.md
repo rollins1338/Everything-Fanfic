@@ -19,7 +19,6 @@
 > [Deleted Fics](https://mega.nz/folder/xpoglbbb#jDgMxvFDauhV024PW-XgwQ)
 # 🍁 WIPs
 
-- [**Inheriting Darkness**🌟](https://archiveofourown.org/works/68204066?view_full_work=true)
 - [**Where the wild things go**](https://archiveofourown.org/works/63127246/chapters/161662813) 40/42
 - [**House Pet**](https://archive.transformativeworks.org/works/38484064/chapters/96182521)
 - [**Crawl to Me**🌟](https://archiveofourown.org/works/73004846/chapters/190215981)
